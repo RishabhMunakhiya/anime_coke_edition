@@ -57,4 +57,4 @@ Thanks a ton for stopping by! If you love anime and cool designs, ⭐ this repo 
 
 ---
 
-Let me know if this feels just right or if you want more tweaks! 😊  
+
